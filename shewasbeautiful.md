@@ -1,5 +1,5 @@
 # 그녀는 예뻤다
-![그녀는 예뻤다](http://www.imbc.com/broad/tv/drama/she/ "그녀는 예뻤다")  
+![그녀는 예뻤다](http://post.phinf.naver.net/MjAxNjEyMDlfMTIg/MDAxNDgxMjYxNDU5NDEw.Rlrf9K1gi55x03ONmsAfggMxSTo6kv_1zV7zDj_a1acg.-PtXn75EVS-WwNnrg6AXbBLD3jezthQ6P7Koc2NeC7Ig.JPEG/Io0vS0BNpLZyTE6QmscJV4zeckTY.jpg "그녀는 예뻤다")  
 
 채널 : mbc  
 장르 : 로맨스  

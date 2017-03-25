@@ -1,5 +1,5 @@
 # 싸인
-![싸인](http://search.naver.com/search.naver?where=nexearch&sm=tab_etc&ie=utf8&os=664629&pkid=57&query=%EB%93%9C%EB%9D%BC%EB%A7%88%20%EC%8B%B8%EC%9D%B8 "싸인")  
+![싸인](http://imgnews.naver.com/image/5033/2010/12/06/201012060807381001_1.jpg "싸인")  
 
 채널 : sbs  
 장르 : 스릴러  

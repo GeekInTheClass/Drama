@@ -1,5 +1,5 @@
 # 보이스
-![보이스](http://program.tving.com/ocn/voice "보이스")  
+![보이스](http://imgnews.naver.com/image/382/2017/03/21/83427155.2_99_20170321140805.jpg "보이스")  
 
 채널 : ocn   
 장르 : 스릴러   

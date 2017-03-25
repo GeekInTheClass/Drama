@@ -1,5 +1,5 @@
 # 시그널
-![시그널](http://www.chtvn.com/signal "시그널")  
+![시그널](http://post.phinf.naver.net/20160526_163/1464229647393gq6Fd_JPEG/IGMDlddXIJEBKZAP9cm5QAa7VUNs.jpg "시그널")  
 
 채널 : tvN  
 장르 : 판타지, 스릴러   

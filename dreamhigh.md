@@ -1,5 +1,5 @@
 # 드림하이
-![드림하이](https://search.naver.com/p/crd/rd?m=1&px=112&py=318&sx=112&sy=318&p=TLh6XwpySowsssjdfQCssssss+G-139119&q=%B5%E5%B8%B2%C7%CF%C0%CC+1&ssc=tab.nx.all&f=nexearch&w=nexearch&s=Qgkf5ozvlykJaazXnzHsRg==&time=1490422462340&t=2&u=http%3A//www.kbs.co.kr/end_program/drama/dreamhigh/&r=1&a=nco_x09*1.image&i=00000012_0000000A2111&cr=1 "드림하이")  
+![드림하이](http://cafefiles.naver.net/20111128_35/kkw3644_1322479666671BFG6N_jpg/g_kkw3644.jpg "드림하이")  
 
 채널 : kbs2  
 장르 : 성장드라마  

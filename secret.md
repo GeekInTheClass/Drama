@@ -1,5 +1,5 @@
 # 비밀
-![비밀](http://www.kbs.co.kr/drama/secretlove/ "비밀")  
+![비밀](http://imgnews.naver.com/image/396/2013/09/30/20130930023574_0_59_20130930180607.jpg "비밀")  
 
 채널 : kbs2  
 장르 : 멜로, 스릴러  

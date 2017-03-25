@@ -1,5 +1,5 @@
 # 별에서 온 그대
-![별에서 온 그대](http://program.sbs.co.kr/builder/programMainList.do?pgm_id=22000001041 "별에서 온 그대")  
+![별에서 온 그대](http://blogfiles5.naver.net/20140116_229/yoon9443_1389830018356GS8HX_JPEG/_1.jpeg "별에서 온 그대")  
 
 채널 : mbc  
 장르 : 로맨스, 판타지   

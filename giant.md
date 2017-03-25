@@ -1,5 +1,5 @@
 # 자이언트
-![자이언트](http://tv.sbs.co.kr/giant/ "자이언트")  
+![자이언트](http://image3.inews24.com/image_joy/201005/127287455474_1.jpg "자이언트")  
 
 채널 : sbs  
 장르 : 드라마

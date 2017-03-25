@@ -1,5 +1,5 @@
 # Game of Thrones
-![GOTS](http://www.imtcast.com/screen/gameofthrones6 "GOTS")  
+![GOTS](http://cdnweb01.wikitree.co.kr/webdata/editor/201303/29/img_20130329154434_5132badc.png "GOTS")  
 
 채널 : 미국 HBO   
 장르 : 액션, 역사극   
